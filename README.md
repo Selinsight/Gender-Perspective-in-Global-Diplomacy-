@@ -1,4 +1,4 @@
-# Gender-Perspective-in-Global-Diplomacy-
+# Gender-Perspective-in-Global-Diplomacy
 # A Gender Perspective in Global Diplomacy (1968–2021)
 
 What is this project about?
